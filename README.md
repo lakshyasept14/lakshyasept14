@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-### 📫 How to reach me:-
+### 📫 Reach me on :-
 ### Email - lakshyasept14@gmail.com
 ### Phone - +91 8285442005
 
