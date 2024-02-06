@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+### 📫 How to reach me:-
+### Email - lakshyasept14@gmail.com
+### Phone - +91 8285442005
+
 <!--
 **lakshyasept14/lakshyasept14** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
